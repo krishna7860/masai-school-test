@@ -1,1 +1,1 @@
-# SAMURAI - <Krishna Sharma>
+# SAMURAI - Krishna Sharma
